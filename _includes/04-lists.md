@@ -1,3 +1,2 @@
 * Programming
 * Cybersecurity
-* Football

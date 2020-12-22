@@ -1,1 +1,1 @@
-https://github.com/Authentic10
+[Github profile](https://github.com/Authentic10)
